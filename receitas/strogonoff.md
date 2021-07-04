@@ -4,4 +4,4 @@
 
 _italico_ italico
 
-delicia hummm
+delicia
